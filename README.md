@@ -1,0 +1,1 @@
+link to figma: https://www.figma.com/file/4IMCMPwGG0CUibJ17BbjzL/Stud.io-Template-(Copy)?type=design&node-id=1-12
